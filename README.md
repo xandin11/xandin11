@@ -1,5 +1,5 @@
 **oi, galera meu nome e xandin_1f me sigam no insta  🤪**
-- eu sou  corinthian  roxo 🖤
+- eu sou corinthiano roxo 💜
 - sou gente boa ☺️
 - moro no parana🇧🇷
 - gosto de futebol não do meu ⚽
